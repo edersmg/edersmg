@@ -1,3 +1,2 @@
 My name is Eder Sanchez Junior
-Estudo no Smg
-Sou do 1ºA
+Estudo no smg sou do 1ºA, tenho 15 anos
